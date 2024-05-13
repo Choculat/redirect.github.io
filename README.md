@@ -1,1 +1,1 @@
-redirection from https://www.24628528.xyz/ to https://choculaterie.com/
+school project (its ugly but i got 97% lol)
